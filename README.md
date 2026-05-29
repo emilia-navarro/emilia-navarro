@@ -1,6 +1,6 @@
 # Emilia Navarro
 
-Independent Balkanist and author at [MagiaAlbanii.pl](https://magiaalbanii.pl/autorzy/emilia-navarro/).
+Independent Balkanist and author at [MagiaAlbanii.pl](https://magiaalbanii.pl/).
 
 I write about Albania, Balkan studies, regional history, cultural heritage, routes, legends, local stories and less obvious places beyond the main tourist trail.
 
